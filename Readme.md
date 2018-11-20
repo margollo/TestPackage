@@ -1,6 +1,6 @@
 EEerunda
 
-i eshe erunda...
+i eshe erunda... vot eto da!!!
 
 
 dobavka 22
